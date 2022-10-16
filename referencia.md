@@ -1,3 +1,0 @@
-##Mateo
-##Aaron
-##Justin
